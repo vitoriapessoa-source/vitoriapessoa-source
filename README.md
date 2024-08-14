@@ -12,4 +12,4 @@ meu nome e vitoria queiroz
   - vitoriaqueiroz572]
 
 
-![](https://media1.tenor.com/m/eakvOpIu7fAAAAAC/sarcastic-clap.gif)
+![](https://media1.tenor.com/m/xMlAxtT8chIAAAAd/jennie-jennie-kim.gif)
