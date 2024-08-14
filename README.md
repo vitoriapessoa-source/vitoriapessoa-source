@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil 💙
 
-meu nome e vitoria queiroz
+- meu nome e vitoria queiroz
 
 - estou estudando na alura
 - estou me desenvolvendo na linguagem javaScript
