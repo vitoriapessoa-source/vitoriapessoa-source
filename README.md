@@ -1,10 +1,10 @@
 ### Boas vindas ao meu perfil 💙
 
-- meu nome e vitoria queiroz
+- meu nome e viih🌻
 
-- estou estudando na alura
-- estou me desenvolvendo na linguagem javaScript
-  - utilizo esse espaço para minha organização e compartilhamento dos meus projetos dfesenvolvidos
+- estou estudando na alura👩‍🎓
+- estou me desenvolvendo na linguagem javaScript🤎
+  - utilizo esse espaço para minha organização e compartilhamento dos meus projetos dfesenvolvidos🌸
  
   - ### você entra em contato comigo 📧
  
